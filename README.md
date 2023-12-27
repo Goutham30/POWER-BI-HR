@@ -13,3 +13,5 @@ Key highlights:
 PDF LINK :https://drive.google.com/file/d/1-6G7S3o7fx_FAw0BdUtw1oI1O33zWcP2/view?usp=sharing
 
 PBIX LINK:https://drive.google.com/file/d/1wIUnTzeQazweI7YpQ5UL9Ho6sikEprY8/view?usp=sharing
+
+CANVA LINK:https://www.canva.com/design/DAF4KxTNUDk/5mnPT22ULMHgYRpN0T5RrQ/edit?utm_content=DAF4KxTNUDk&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
